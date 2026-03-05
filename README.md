@@ -1,0 +1,1 @@
+# bemindly-resources
